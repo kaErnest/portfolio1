@@ -13,4 +13,6 @@
 
 ### Karoline Ernest
 
-### Linkedin: https://www.linkedin.com/karoline-ernest
+### Linkedin: https://www.linkedin.com/in/karoline-ernest
+
+
